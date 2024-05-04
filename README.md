@@ -1,2 +1,1 @@
-°˖ ʚɞ ꒦꒷⩩ ♡ 𝒌𝒍𝒐𝒖𝒅.¨·. ࿏ᆢ
- 
+i'm lazy to do this rn
